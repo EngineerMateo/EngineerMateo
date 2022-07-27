@@ -1,1 +1,1 @@
-Knowledge of software development, PCB design, biomechanics, materials analysis and medical regulation.
+Professional in Bioengineering with knowledge of software development, Linux, circuit analysis, PCB design, biomaterials, ISO standards, medical regulation and office tools.
